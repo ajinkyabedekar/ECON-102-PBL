@@ -12,3 +12,15 @@ Time 3:30 PM
 Day: Saturday
 Date: 24/02/2018
 Venue: Research Scholar Room ( In from of my faculty office).
+
+Please find the google sheet, consisting of PBL details like your group leader, topic, sub topic, mentor, group leader etc. Group members dont have editing right of the sheet but they can view. All group leaders, mentor group leaders, project coordinator have editing right.
+
+The group leaders have nominated you, but its your choice to remain in that group. you wish to join that particular group or not. If you are not willing to remain in the group, in which you are, you may write me on gurendra.bhardwaj@niituniversity.in, email, CC to gurendrabhardwaj@gmail.com, or whatsapp me on 09251083103. We will find the solution. but in any case the group size can not exceed 22 students in a group including group leader and minimum 21 students.
+
+As I have repeatedly said that only I do the evaluation of all components so all the above team is here to help in growing academically, but no way they will do the evaluation of any component. The first evaluation will be of 10% marks for abstract, for which you need to download data, other reports, news articles etc. related to your topic and sub topic. The group mentors and project coordinator will help you.
+
+As you are aware that during coming week ( March 5-9, 2018) I am not in the campus, but my team is here to help you in all possible manner.
+
+I will meet my team of group leaders, mentor group leaders and project coordinator at  2:00 PM ( March 10, 2018) before that I wish to get this job done. I will be available on phone, so you are free to do whatsapp to me in case of any problem, which is not solved by the team.
+
+https://docs.google.com/spreadsheets/d/1CEdK5ipKtUGGBFXBSxGPYeoktCAXcSEnL5aF12gHT5o/edit?usp=sharing

@@ -24,3 +24,7 @@ As you are aware that during coming week ( March 5-9, 2018) I am not in the camp
 I will meet my team of group leaders, mentor group leaders and project coordinator at  2:00 PM ( March 10, 2018) before that I wish to get this job done. I will be available on phone, so you are free to do whatsapp to me in case of any problem, which is not solved by the team.
 
 https://docs.google.com/spreadsheets/d/1CEdK5ipKtUGGBFXBSxGPYeoktCAXcSEnL5aF12gHT5o/edit?usp=sharing
+
+There will be data analysis workshop for ECON 102 PBL 2018 tomorrow ( March 28, 2018) between 4:00 PM -5:00 PM in NU-Auditorium-Seats(240).
+
+You are advised to bring charged laptop for the same and data in excel format.

@@ -48,3 +48,5 @@ Slot 3 = Friday (May 4, 2018)
 Your PBL marks have been published on ERP. Please also find the sub component wise marks, so that You can cross check with ERP marks. If you find any discrepancy in both the marks, please revert me back immediately.
 
 Now you have your pre-comprehensive marks in ECON 102.
+
+https://www.indiaratings.co.in/upload/research/specialReports/2015/6/18/indra18FY11.pdf

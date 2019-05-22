@@ -28,3 +28,19 @@ https://docs.google.com/spreadsheets/d/1CEdK5ipKtUGGBFXBSxGPYeoktCAXcSEnL5aF12gH
 There will be data analysis workshop for ECON 102 PBL 2018 tomorrow ( March 28, 2018) between 4:00 PM -5:00 PM in NU-Auditorium-Seats(240).
 
 You are advised to bring charged laptop for the same and data in excel format.
+
+The PBL presentation will start from May 2, 2018. Please find the schedule for the same. The group leaders are required to submit the executive summary (handwritten hard copy of each group member) to me by 3:00 PM April 30, 2018. So you need to submit your executive summary to your concerned group leader at least one day before. No late submission will be accepted. 
+
+PBL presentation details
+
+Venue LT 222,   Time Slot as mentioned below.
+
+Slot 1 = Wednesday (May 2, 2018)
+         8-9pm (group-3)
+Slot 2 = Thursday (May 3, 2018)
+         7-8pm (group-1)
+         8-9pm (group-6)
+Slot 3 = Friday (May 4, 2018)
+         6-7pm (group-2)
+         7-8pm (group-5)
+         8-9pm (group-4)

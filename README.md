@@ -50,3 +50,5 @@ Your PBL marks have been published on ERP. Please also find the sub component wi
 Now you have your pre-comprehensive marks in ECON 102.
 
 https://www.indiaratings.co.in/upload/research/specialReports/2015/6/18/indra18FY11.pdf
+
+https://rbi.org.in/scripts/PublicationDraftReports.aspx?ID=694

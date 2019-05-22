@@ -44,3 +44,7 @@ Slot 3 = Friday (May 4, 2018)
          6-7pm (group-2)
          7-8pm (group-5)
          8-9pm (group-4)
+
+Your PBL marks have been published on ERP. Please also find the sub component wise marks, so that You can cross check with ERP marks. If you find any discrepancy in both the marks, please revert me back immediately.
+
+Now you have your pre-comprehensive marks in ECON 102.

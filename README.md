@@ -120,7 +120,7 @@ The repository contains the following:
 
 11. Evaluation and marks assigned to every student who was part of the project
 
-Message from Dr. Gurendra Nath Bhardwaj:
+Messages from Dr. Gurendra Nath Bhardwaj:
 
     As you are aware that this time, I am inviting nomination for group leaders from you. The academic eligibility will be minimum 80% marks in mid sem-1 for group leader.
 
